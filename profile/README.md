@@ -1,3 +1,3 @@
-# Sydney Diocesan Services
+# Public org page
 
 ## Details
